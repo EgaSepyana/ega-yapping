@@ -33,7 +33,7 @@ kadang masalah yang kita hadapi bukan cuman kejadian di luar , tapi bagaimana ki
 
 kadang kita nyalahin diri sendiri terus terusan , tapi  lupa buat bertanya , kenapa aku kayak gini, misalnya, kamu ngerasa ga pede terus , bukan nya nyalahin diri tapi coba gali kenapa aku ga pede, mungkin karena sering di bandingin dari kecil, atau karena dulu pernah gagal dan di cengin habih habisan.
 
-root couse ini bikin kita lebih sayang sama diri sendiri lebih ngerti cara menyembuhkan bikan sekedar nutupin
+root couse ini bikin kita lebih sayang sama diri sendiri lebih ngerti cara menyembuhkan bukan sekedar nutupin
 
 <!--  -->
 supaya kamu bisa liat giamana pencarian akar masalah itu bisa bikin perubahan besar, bahkan bukan cuman buat hidup pribadi juga di tapi juga di skala yang lebih luas.
